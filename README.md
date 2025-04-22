@@ -1,4 +1,4 @@
-# CSGO500 Promo Code 2025 – Use “CSGO500MAX” For up to $1000 Free + 50 Free Spins
+# CSGO500 Promo Code 2025 – Use “CSGO500MAX” For Up To $1000 Free + 50 Free Spins
 
 Learn how to claim your CSGO500 promo code. When you sign up using the referral code CSGO500MAX and make a $1000 deposit, you instantly receive an extra 100%, giving you a total of $ 2,000 to play with. But that’s not all — you also unlock 50 free spins, each potentially boosting your balance further. We tested this ourselves and found that the code activates instantly in your bonus wallet, allowing you to dive into the casino & case opening action right away.
 
