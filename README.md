@@ -16,7 +16,7 @@ We tested the CSGO500 referral code CSGO500MAX during a complete registration an
 ## How do you use the CSGO500 Promo Code?
 
 To make the most of your CSGO500 welcome bonus, follow these steps:
-1. Visit CSGO500.com and click on Register in the top-right corner.  
+1. [Visit CSGO500.com](https://bit.ly/csgo500max) and click on Register in the top-right corner.  
 2. Fill out your details or use Google, Steam, or Discord to register faster.  
 3. Once your account is active, navigate to the Wallet section and select your preferred payment method.  
 4. Before you deposit, go to the Promo Code section and type in CSGO500MAX.
